@@ -15,4 +15,3 @@ I'm able to work independently and also collaborate effectively in a team enviro
 - 📫 How to reach me: ...[Email](mailto:Josiahdamiwilliams@gmail.com) | [Linkendin](https://www.linkedin.com/in/josiah-williams/)
 - 😄 Pronouns: ...He/Him
 - ⚡ Fun fact: ...Emoji lover😍😍
--->
