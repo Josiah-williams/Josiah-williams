@@ -12,7 +12,7 @@ I'm able to work independently and also collaborate effectively in a team enviro
 - 👯 I’m looking to collaborate on ...wordpress
 - 🤔 I’m looking for help with ...getting a new role
 - 💬 Ask me about ...React/Javascript and problem solving
-- 📫 How to reach me: ...[Email](mailto:Josiahdamiwilliams@gmail.com)|[Linkendin](https://www.linkedin.com/in/josiah-williams/)
+- 📫 How to reach me: ...[Email](mailto:Josiahdamiwilliams@gmail.com) | [Linkendin](https://www.linkedin.com/in/josiah-williams/)
 - 😄 Pronouns: ...He/Him
 - ⚡ Fun fact: ...Emoji lover😍😍
 -->
